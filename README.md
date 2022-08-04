@@ -1,1 +1,0 @@
-# belediyeonetpa3w
